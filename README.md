@@ -1,1 +1,1 @@
-# lovejapanapp.com
+# lovejapanapp.github.io
